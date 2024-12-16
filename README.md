@@ -10,7 +10,7 @@ TeachWise AI is an innovative AI-powered platform that empowers anyone to create
 * Seamlessly create UGC-level researched content for professional-grade courses.
 + Engage learners with live-like AI tutors for real-time mentoring and problem-solving.
 
-[Click here to learn more](https://warriorplus.com/o2/a/mfrc4lm/0)
+[Click here to learn more about offers](https://warriorplus.com/o2/a/mfrc4lm/0)
 
 With TeachWise AI, you can create, market, and monetize your courses effortlessly, tapping into the ever-growing e-learning market.
 ## Key Features That Make TeachWise AI Stand Out
@@ -57,5 +57,5 @@ With features like AI-powered course creation, live-like AI tutors, built-in mar
 
 So, what are you waiting for? Transform your passion for teaching into a thriving e-learning business with TeachWise AI today!
 
-[Click here to learn more](https://warriorplus.com/o2/a/mfrc4lm/0)
+[Click here to learn more about offers](https://warriorplus.com/o2/a/mfrc4lm/0)
 
