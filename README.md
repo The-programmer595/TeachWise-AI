@@ -7,5 +7,5 @@ TeachWise AI is an innovative AI-powered platform that empowers anyone to create
 + Generate hundreds of AI-powered courses by simply entering a keyword.
 - Offer students access to a customized learning experience with a human-like AI tutor.
 * Seamlessly create UGC-level researched content for professional-grade courses.
-= Engage learners with live-like AI tutors for real-time mentoring and problem-solving.
++ Engage learners with live-like AI tutors for real-time mentoring and problem-solving.
 With TeachWise AI, you can create, market, and monetize your courses effortlessly, tapping into the ever-growing e-learning market.
